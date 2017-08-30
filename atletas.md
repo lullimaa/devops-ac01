@@ -1,3 +1,2 @@
-# Melhores atletas:
+#Atleta que admiro:
 Sidão - Vôlei.
-Bruno Rezende - Vôlei.
